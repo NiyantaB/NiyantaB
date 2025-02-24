@@ -1,4 +1,4 @@
-# Hi, I'm Niyanta Bhatt 👋  
+# Hi, I'm Niyanta
 ## 🚀 Business Analyst (Solutions focused) | AI & Automation | Cloud SaaS Expert  
 
 ### **🔹 About Me**  
